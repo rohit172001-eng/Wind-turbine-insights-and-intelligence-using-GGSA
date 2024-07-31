@@ -1,0 +1,1 @@
+# Wind-turbine-insights-and-intelligence-using-GGSA
